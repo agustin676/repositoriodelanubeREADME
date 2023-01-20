@@ -1,2 +1,3 @@
-# repositoriodelanubeREADME
-este es un repositorio de prueba toma 2 gg porfavor que salga bien malditazea
+nose dice que tengo que escribir algo aca es una edicion toma dos porfa que salga bien 
+
+hola mundo again yankis de mierda
